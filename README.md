@@ -25,7 +25,7 @@ Here are some of the technologies I am working with:
 ## Connect with Me 🌐
 
 - 📫 Email:(mailto:sheerazriaz018@gmail.com)
-- 🔗 LinkedIn: (https://www.linkedin.com/in/sheraz riazhs)
+- 🔗 LinkedIn: (https://www.linkedin.com/in/sherazriazhs)
 - 🌍 Website: [www.srhs.com)
 
 
